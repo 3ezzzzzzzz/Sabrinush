@@ -1,2 +1,0 @@
-# Sabrinush
-Te ador
